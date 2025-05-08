@@ -10,7 +10,7 @@
 <div align="left">• i mostly listen to gabber, happy hardcore and similar... drooling </div>
 <div align="left">• theres a high posibility i may have adhd... and im gonna go get diagnosed for it soon ^^" </div>
 <div align="left">• i really like biology, history, dogs, seals, geography anddd idk ;pp </div>
-
+`
 <div align="center"> PSST!! i hope everyone has a good day ! ... ^_^ <3
 
 <img src="https://64.media.tumblr.com/a8d6eb5d611d3c515e2fc483d6596967/84f9bac0f54e2bad-65/s1280x1920/2bddb4f526689729098ab9e38d93852e60df7396.pnj">
