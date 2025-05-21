@@ -1,5 +1,5 @@
 <img src="https://64.media.tumblr.com/1c18bcab3ecc903de21059f5090bc2fc/84f9bac0f54e2bad-1d/s1280x1920/9b8f3cb1ab8126b02462e02783df87d35528043c.pnj">
-<img src="https://media.discordapp.net/attachments/1133526020855705661/1370112959988240457/Untitled209_20250508205901.png?ex=681e50a1&is=681cff21&hm=482301f1cab6494fd7849058e9905ada8f576e4cd11b19e2c0923e2fa6072593&=&format=webp&quality=lossless&width=1514&height=478">
+<img src="https://media.discordapp.net/attachments/956595890573955183/1374847599097679892/Untitled209_20250508205901.png?ex=682f8a1b&is=682e389b&hm=bb1692114e60094751af46af797bb31ac2a170b49925128859a4f0debc6f6ccb&=&format=webp&quality=lossless&width=1514&height=478">
 <img src="https://64.media.tumblr.com/907f0a419c48a3b27b59acc935baf281/23681ec8e8b5b5ba-b9/s1280x1920/b64ccf4780494639c6e180f4465cd18d41e4b647.pnj">
 <div align="center">  𓏲𝄢.ᐟ ┆ Keel / Polpol / Cheri ‼️ ⊱  ۫ ׅ ✧ 🍓 </div>
 <div align="center"> ⁉️ - you've probably came here from pony town ! </div>
