@@ -9,6 +9,3 @@
 <div align = center> just go check out my strawpage and ermmm yeah!!! </div>
 ㅤ
 <div align = center> <img src="https://64.media.tumblr.com/ae8f8fa3eff8ddde72c05658aface448/169dc82015ab755d-eb/s2048x3072/f101890f2fc618d7e79ee4e01c51e284a300d7e9.gifv"> </div>
-some songs i like.... :
-
-[![]()](https://www.youtube.com/watch?v=KX_qAyYt3ps)
