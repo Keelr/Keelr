@@ -1,4 +1,3 @@
-<div align = center> <img src="https://i.postimg.cc/TwThdZjn/Untitled1094-20240909115900.png"> </div>
 <div align = center> <img src="https://64.media.tumblr.com/ae8f8fa3eff8ddde72c05658aface448/169dc82015ab755d-eb/s2048x3072/f101890f2fc618d7e79ee4e01c51e284a300d7e9.gifv"> </div>
 ㅤ
 <div align = center> <img src="https://64.media.tumblr.com/410e7fa4ea78a71d6ad183ad12b98624/aeac3b1b5e0222f0-4f/s1280x1920/ffb205fcd9b4a5a24a64b76bf380bdac3c98890c.pnj"/> </div>
