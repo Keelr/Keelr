@@ -9,4 +9,6 @@
 <div align = center> just go check out my strawpage and atabook ermmm yeah get to know me more!!! </div>
 <div align = center> cheri is my persona btw... sillylsllyl shrimp lalal <333 </div>
 ㅤ
+<div align = left> ![atabook](https://keel.atabook.org/)
+  
 <div align = center> <img src="https://64.media.tumblr.com/ae8f8fa3eff8ddde72c05658aface448/169dc82015ab755d-eb/s2048x3072/f101890f2fc618d7e79ee4e01c51e284a300d7e9.gifv"> </div>
