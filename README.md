@@ -8,6 +8,7 @@
 <div align = center> u are here cuz u probably saw me on pony town,,, 
 <div align = center> just go check out my strawpage and atabook ermmm yeah get to know me more!!! </div>
 <div align = center> cheri is my persona btw... sillylsllyl shrimp lalal <333 </div>
+<dib align = center> I LOVE MY WIFE SNAROOM POOKS BTW GUYS!!! i loooveee my wiiffeeee </div>
 ㅤ
 <div id="header" align="center">
 
