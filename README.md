@@ -1,17 +1,16 @@
-<div align = center> <img src="https://64.media.tumblr.com/ae8f8fa3eff8ddde72c05658aface448/169dc82015ab755d-eb/s2048x3072/f101890f2fc618d7e79ee4e01c51e284a300d7e9.gifv"> </div>
-ㅤ
-<div align = center> <img src="https://64.media.tumblr.com/410e7fa4ea78a71d6ad183ad12b98624/aeac3b1b5e0222f0-4f/s1280x1920/ffb205fcd9b4a5a24a64b76bf380bdac3c98890c.pnj"/> </div>
-<div align = center> <img src="https://64.media.tumblr.com/3e6cfebc3058d8fa96f364fca5a1ff77/4160be3cc2b84620-04/s500x750/f111e18a7cae615a1cf7dffeac520522ec2c155d.gifv"> </div>
-ㅤ
-<div align = center > ౿ ݁  .  Keel , Polpol  !          ︵   ｡ Ꮺ ˚ </div>
-
-<div align = center> u are here cuz u probably saw me on pony town,,, 
-<div align = center> just go check out my strawpage and atabook ermmm yeah get to know me more!!! </div>>
-<div align = center> I have a very cool wife...hi snarrorom :333 </div>
-<div align = center> I love chance gng </div>
+<div align = center> <img src= https://64.media.tumblr.com/46154b0c1b90ba42923d1cb82017be82/17e56c69ffb64f87-f2/s2048x3072/cec7ba93f920a66858601bd23b1f94d1e54d3823.pnj> </div>
+<div align = center> <img src= https://64.media.tumblr.com/333f24c67eb5537354b6965deff87db3/f6ea31639d1cde4f-7f/s2048x3072/7debc5aa237d6535bd311470eb1bf26d318eacbc.pnj> </div>
+<div align = center> <img src= https://www5.lunapic.com/do-not-link-here-use-hosting-instead/175926646910804747?55550091523> </div> 
+<div align = center> <img src= https://64.media.tumblr.com/6da60a03f595674fed14cb744867a3db/1772854da6a99e02-2c/s640x960/619daa5bae619ef9fce2eee957e6a58c26c7985d.gifv> </div> 
+⠀
+<div align = center> ᛝ ⠀Keel⠀  ⸝ ⠀ Polpol ⠀୨ৎ </div>
+⠀
+<div align = center> <img src= https://i.postimg.cc/SRtzcpKg/gendervoid.png> <img src=https://i.postimg.cc/mDSTmwTM/aromantic-5-stripes-20-px.png> <img src= https://i.postimg.cc/PfCxCX6n/aceflux-5-stripes-20-px.png>⠀ ᛝ </div>
+⠀
 <div id="header" align="center">
 
 [atabook](https://keel.atabook.org/)⠀⠀⠀[strawpage](https://keel.straw.page)⠀⠀[tumblr](https://www.tumblr.com/keelx3)
 
-  
-<div align = center> <img src="https://64.media.tumblr.com/ae8f8fa3eff8ddde72c05658aface448/169dc82015ab755d-eb/s2048x3072/f101890f2fc618d7e79ee4e01c51e284a300d7e9.gifv"> </div>
+⠀<div align = center> <img src= https://64.media.tumblr.com/6da60a03f595674fed14cb744867a3db/1772854da6a99e02-2c/s640x960/619daa5bae619ef9fce2eee957e6a58c26c7985d.gifv> </div> 
+<div align = center> <img src= https://64.media.tumblr.com/89a7078b3978e3503a1b7344428df0bc/f03668631de77a31-ff/s2048x3072/ec7dae344efb376ddab4a6d6b76b8341ae7320b9.pnj> </div>
+<div align = center> <img src= https://64.media.tumblr.com/333f24c67eb5537354b6965deff87db3/f6ea31639d1cde4f-7f/s2048x3072/7debc5aa237d6535bd311470eb1bf26d318eacbc.pnj> </div>
